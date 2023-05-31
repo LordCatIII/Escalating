@@ -12,3 +12,11 @@
 # Bean
 # License
 # Everything
+# ™
+# lol
+# !Red
+# Lord
+# Cat
+# Byte
+# 1
+# Bit
