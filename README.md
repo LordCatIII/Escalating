@@ -14,7 +14,7 @@
 # Everything
 # ™
 # lol
-# !Red
+# Red
 # Lord
 # Cat
 # Byte
